@@ -1,4 +1,4 @@
-#  
+#  updated king legacy Script offers the most advanced king legacy Script, with unlimited stamina and instant win. Perfect for dominating any match.
 
 
 
